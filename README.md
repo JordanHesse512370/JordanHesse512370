@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Jordan Hesse
+- 👀 I’m interested in Art
+- 🌱 I’m currently learning IT
